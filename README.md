@@ -1,0 +1,2 @@
+- Hi, I’m @Has5ium
+- Reach me on Discord at Hassium#0732
